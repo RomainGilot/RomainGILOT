@@ -2,4 +2,4 @@
 ![Black Geometric Web Developer LinkedIn Article Cover Image (2)](https://github.com/user-attachments/assets/e3a870f6-fb61-4675-a2d5-58512b64c472)
 ![Black Geometric Web Developer LinkedIn Article Cover Image (3)](https://github.com/user-attachments/assets/c669220b-297a-4dc7-aea6-2fd4cebbb42d)
 ![Black Geometric Web Developer LinkedIn Article Cover Image (1)](https://github.com/user-attachments/assets/ac80d929-64ce-455c-8c0d-b0a1a651ee96)
-![Design sans titre (2)](https://github.com/user-attachments/assets/eb1dd484-028a-4a73-b771-7122b16f1d8c)
+![Design sans titre (3)](https://github.com/user-attachments/assets/1dbfeefc-9baf-4b5e-ab9d-37aa0e573939)
